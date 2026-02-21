@@ -1,1 +1,3 @@
-# notebooklm-DIO
+link para o notebooklm: https://notebooklm.google.com/notebook/67abf8b1-610d-4269-931a-cfd3bda3f6f4
+
+Este NotebookLM reúne fontes diversificadas sobre a história, política e cultura brasileira. Abrange episódios como as invasões holandesas no século XVII e o legado nacionalista e trabalhista de Getúlio Vargas. Há um foco detalhado na construção de Brasília, descrita como a metassíntese do governo JK, envolvendo a Missão Cruls e o trabalho dos pioneiros candangos. O material fornece dados populacionais e econômicos de diversos municípios e capitais, citando manifestações como o Carnaval e instrumentos da Capoeira. Por fim, ressalta personalidades fundamentais registradas no Livro dos Heróis e Heroínas da Pátria.
